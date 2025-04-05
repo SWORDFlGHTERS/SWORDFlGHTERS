@@ -1,4 +1,4 @@
-![Titelloses 101_20250405131224](https://github.com/user-attachments/assets/dd488a18-1399-475a-bc4e-9092282ffac3)
+![Titelloses 101_20250405144321](https://github.com/user-attachments/assets/4dc478a5-0a96-45e0-a752-fd14bad8c771)
 
 <p align="left">
  $\textcolor{#612F37}{\textsf{I must be the reason why—}}$
